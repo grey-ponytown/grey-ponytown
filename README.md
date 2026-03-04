@@ -9,6 +9,7 @@ Pronouns: She/Her
 Age: 18 (unfriend / DNI if my age bothers you)
 
 INT: preferably 15+ please, I don't want to interact with children
+DNI: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
 ╚══ ❀•°❀°•❀ ══╝
 
