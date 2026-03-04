@@ -1,15 +1,14 @@
 ╔══ ❀•°❀°•❀ ══╗
 
-Name: Grey
+Name: 𝐆𝐫𝐞𝐲
 (or the name of whatever character I am cosplaying is fine)
 
-Pronouns: She/Her
+Pronouns: 𝐒𝐡𝐞/𝐇𝐞𝐫
 (or the pronouns of the character I am cosplaying are fine)
 
 Age: 18 (unfriend / DNI if my age bothers you)
 
-INT: preferably 15+ please, I don't want to interact with children
-DNI: basic DNI, especially ANYTHING ableist - I find it very hurtful
+INT: preferably 15+ please, I don't want to interact with children // DNI: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
 ╚══ ❀•°❀°•❀ ══╝
 
