@@ -1,10 +1,6 @@
 ╔══ ❀•°❀°•❀ ══╗
 
-𝐍𝐚𝐦𝐞: Grey
-(or the name of whatever character I am cosplaying is fine)
-
-𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her
-(or the pronouns of the character I am cosplaying are fine)
+𝐍𝐚𝐦𝐞 / 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: Grey, (She/Her) OR the name and pronouns of the character I am cosplaying are completely fine
 
 𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you)
 
