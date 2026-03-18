@@ -4,7 +4,7 @@
 
 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her (or my cosplay's pronouns)
 
-𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you)
+𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you) // 𝐁𝐚𝐬𝐞𝐝: UK/England
 
 𝐈𝐍𝐓: preferably 15+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
