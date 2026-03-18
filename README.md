@@ -6,7 +6,7 @@
 
 𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you)
 
-𝐈𝐍𝐓: preferably 15+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I personally find it very hurtful
+𝐈𝐍𝐓: preferably 15+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
 ╚══ ❀•°❀°•❀ ══╝
 
