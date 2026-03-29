@@ -6,6 +6,8 @@
 
 𝐈𝐍𝐓: preferably 15+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
+READ STRAWPAGE
+
 ╚══ ❀•°❀°•❀ ══╝
 
 ╔══ ❀•°❀°•❀ ══╗
