@@ -16,7 +16,7 @@ Main interests ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7
 
 ╚══ ❀•°❀°•❀ ══╝
 
-I don't know how else to describe myself, so here are some characters I relate to >:3
+I don't know how else to describe myself, so here are some characters I relate to a little bit too much :'D
 
 <img width="200" height="200" alt="Untitled115_20260208205305" src="https://github.com/user-attachments/assets/6fb6d67d-6d23-43e9-99a6-b9e6938e2961" />
 <img width="200" height="200" alt="Untitled115_20260208205300" src="https://github.com/user-attachments/assets/0690ce31-9a11-4198-9e22-bc06ebd0c4ec" />
