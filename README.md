@@ -23,11 +23,8 @@ I don't know how else to describe myself, so here are some characters I relate t
   <img src="https://github.com/user-attachments/assets/0690ce31-9a11-4198-9e22-bc06ebd0c4ec" width="24%" />
   <img src="https://github.com/user-attachments/assets/e862cfec-982f-4f3f-910b-3617cb1e55ed" width="24%" />
   <img src="https://github.com/user-attachments/assets/6ca3424e-cdb2-4265-b9e5-35b581481a75" width="24%" />
-</p>
-___
-<p float="left">
-  <img src="https://github.com/user-attachments/assets/1939f956-d0c9-44de-b073-b0c8f7a39db8" width="24% />
-  <img src="https://github.com/user-attachments/assets/23a666f0-d2b0-460b-a076-91657e15e088" width="24% />
-  <img src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" width="24% />
-  <img src="https://github.com/user-attachments/assets/f513e244-6fa0-4066-8633-239dd3008c71" width="24% />
+  <img src="https://github.com/user-attachments/assets/1939f956-d0c9-44de-b073-b0c8f7a39db8" width="24%  />
+  <img src="https://github.com/user-attachments/assets/23a666f0-d2b0-460b-a076-91657e15e088" width="24%  />
+  <img src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" width="24%  />
+  <img src="https://github.com/user-attachments/assets/f513e244-6fa0-4066-8633-239dd3008c71" width="24% /
   </p>
