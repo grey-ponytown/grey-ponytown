@@ -17,7 +17,7 @@ Main interests ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7
 ╚══ ❀•°❀°•❀ ══╝
 
 I don't know how else to describe myself, so here are some characters I relate to a little bit too much :'D
-
+<p float="left">
 <img width="200" height="200" alt="Untitled115_20260208205305" src="https://github.com/user-attachments/assets/6fb6d67d-6d23-43e9-99a6-b9e6938e2961" />
 <img width="200" height="200" alt="Untitled115_20260208205300" src="https://github.com/user-attachments/assets/0690ce31-9a11-4198-9e22-bc06ebd0c4ec" />
 <img width="200" height="200" alt="Untitled115_20260208205303" src="https://github.com/user-attachments/assets/e862cfec-982f-4f3f-910b-3617cb1e55ed" />
@@ -26,3 +26,4 @@ I don't know how else to describe myself, so here are some characters I relate t
 <img width="200" height="200" alt="Untitled115_20260208205254" src="https://github.com/user-attachments/assets/23a666f0-d2b0-460b-a076-91657e15e088" />
 <img width="200" height="200" alt="Untitled115_20260208205311" src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" />
 <img width="200" height="200" alt="Untitled115_20260208205314" src="https://github.com/user-attachments/assets/f513e244-6fa0-4066-8633-239dd3008c71" />
+</p>
