@@ -10,6 +10,8 @@
 
 ╚══ ❀•°❀°•❀ ══╝
 
+🌨️₊˚.🎧 ˚.🩵*🎐✩｡
+
 ╔══ ❀•°❀°•❀ ══╗
 
 Main interests ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7 (re:vale + mezzo"), lotr + silmarillion, po yun (BTtC), sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // MORE LISTED ON STRAWPAGE
