@@ -6,13 +6,15 @@
 
 𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I find it very hurtful
 
+[𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
+
 ╚══ ❀•°❀°•❀ ══╝
 
-🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡[𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡
+🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡
 
 ╔══ ❀•°❀°•❀ ══╗
 
-𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7, lotr + silmarillion, ninjago, po yun (BTtC), sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // MORE LISTED ON [STRAWPAGE](https://grey-pt.straw.page)
+𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7, lotr + silmarillion, ninjago, po yun (BTtC), sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // more listed on [strawpage](https://grey-pt.straw.page)
 
 ╚══ ❀•°❀°•❀ ══╝
 
