@@ -14,7 +14,7 @@
 
 ╔══ ❀•°❀°•❀ ══╗
 
-𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7, lotr + silmarillion, ninjago, po yun (BTtC), sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // more listed on [strawpage](https://grey-pt.straw.page)
+𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7, lotr + silmarillion, ninjago, po yun (BTtC), sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // more listed on [interests](https://grey-pt.straw.page/interests) page
 
 ╚══ ❀•°❀°•❀ ══╝
 
