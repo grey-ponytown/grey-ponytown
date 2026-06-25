@@ -4,7 +4,7 @@
 
 𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you) // 𝐁𝐚𝐬𝐞𝐝: UK/England
 
-𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, especially ANYTHING ableist - I find it very hurtful
+𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, ableism, minors on 18+
 
 [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
