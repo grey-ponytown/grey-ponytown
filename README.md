@@ -8,6 +8,8 @@
 
 [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
+𝐓𝐚𝐠𝐬: DNIUF - either unwell or unavailable // AFK - writing or drawing, so W2I // eepy - sleeping, do not disturb.
+
 ╚══ ❀•°❀°•❀ ══╝
 
 🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡
