@@ -30,4 +30,5 @@ I don't know how else to describe myself, so here are some characters I relate t
   <img src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" width="16%" />
   <img src="https://github.com/user-attachments/assets/1d2dc0ed-373d-4557-aaaf-66400c068cc1" width="16%" />
   </p>
+  Viktor and Jayce are my comfort characters, I relate to Viktor a little too heavily :'D
 
