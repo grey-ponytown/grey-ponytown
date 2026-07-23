@@ -29,9 +29,3 @@ I don't know how else to describe myself, so here are some characters I relate t
   <img src="https://github.com/user-attachments/assets/1d2dc0ed-373d-4557-aaaf-66400c068cc1" width="16%" />
   </p>
   
-
-𝐓𝐚𝐠𝐬: 𝐀𝐅𝐊 - writing or drawing, whisper if you need me
-
-𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable /𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much
-
-𝐞𝐞𝐩𝐲 - sleeping, do not disturb
