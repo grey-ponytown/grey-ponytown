@@ -6,7 +6,7 @@
 
 𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, ableism, minors on 18+
 
-𝐓𝐚𝐠𝐬: // 𝐀𝐅𝐊 - writing or drawing, whisper if you need me // 𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable // 𝐞𝐞𝐩𝐲 - sleeping, do not disturb.
+𝐓𝐚𝐠𝐬: // 𝐀𝐅𝐊 - writing or drawing, whisper if you need me // 𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable // /𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much // 𝐞𝐞𝐩𝐲 - sleeping, do not disturb.
 
 [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
