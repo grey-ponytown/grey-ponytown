@@ -32,8 +32,6 @@ I don't know how else to describe myself, so here are some characters I relate t
 
 𝐓𝐚𝐠𝐬: 𝐀𝐅𝐊 - writing or drawing, whisper if you need me
 
-𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable 
+𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable /𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much
 
-/𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much
-
-𝐞𝐞𝐩𝐲 - sleeping, do not disturbping�ping
+𝐞𝐞𝐩𝐲 - sleeping, do not disturb
