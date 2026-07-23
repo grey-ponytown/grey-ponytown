@@ -6,8 +6,6 @@
 
 𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, ableism, minors on 18+
 
-𝐓𝐚𝐠𝐬: // 𝐀𝐅𝐊 - writing or drawing, whisper if you need me // 𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable // /𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much // 𝐞𝐞𝐩𝐲 - sleeping, do not disturb.
-
 [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
 ╚══ ❀•°❀°•❀ ══╝
@@ -30,4 +28,12 @@ I don't know how else to describe myself, so here are some characters I relate t
   <img src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" width="16%" />
   <img src="https://github.com/user-attachments/assets/1d2dc0ed-373d-4557-aaaf-66400c068cc1" width="16%" />
   </p>
+  
 
+𝐓𝐚𝐠𝐬: 𝐀𝐅𝐊 - writing or drawing, whisper if you need me
+
+𝐃𝐍𝐈𝐔𝐅 - either unwell or unavailable 
+
+/𝐮𝐧𝐰𝐞𝐥𝐥 - feeling ill, probably won't int much
+
+𝐞𝐞𝐩𝐲 - sleeping, do not disturbping�ping
