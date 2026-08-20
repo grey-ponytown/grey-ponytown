@@ -2,7 +2,7 @@
 
 𝐍𝐚𝐦𝐞: Grey (or my cosplay's name) // 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her (or my cosplay's pronouns)
 
-𝐀𝐠𝐞: 18 (unfriend / DNI if my age bothers you) // 𝐁𝐚𝐬𝐞𝐝: UK/England
+𝐀𝐠𝐞: 19 (unfriend / DNI if my age bothers you) // 𝐁𝐚𝐬𝐞𝐝: UK/England
 
 𝐈𝐍𝐓: preferably 16+ please, I don't want to interact with children // 𝐃𝐍𝐈: basic DNI, ableism, minors on 18+
 
