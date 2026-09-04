@@ -1,21 +1,25 @@
-══ ❀•°❀°•❀ ══════════════════════════════════════════  
+══ ❀•°❀°•❀ ══════════════════════════════════════════
+
 — 𝐍𝐚𝐦𝐞: Grey (or my cosplay's name)  
 — 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her (or my cosplay's pronouns)  
 — 𝐀𝐠𝐞: 19 (unfriend / DNI if my age bothers you)  
 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
 — 𝐈𝐍𝐓: **preferably 16+ please**, I don't want to interact with children  
 — 𝐃𝐍𝐈: basic DNI, ableism, incest, (ect...), <ins>**minors on 18+**</ins>, No roleplay please :'D (unless we're close)  
-— [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)  
+— [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
+
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
 🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡🌨️₊˚.🎧 ˚.🩵*🎐✩｡
 
-══ ❀•°❀°•❀ ══════════════════════════════════════════  
+══ ❀•°❀°•❀ ══════════════════════════════════════════
+
 𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : <ins>arcane</ins> (jayvik), <ins>berserk</ins>, <ins>descendants of darkness</ins>, <ins>idolish7</ins>, lotr + silmarillion,  
 po yun (BTtC), <ins>rick & morty</ins>, sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku
 
-— More listed on [interests](https://grey-pt.straw.page/interests) page  
-══════════════════════════════════════════ ❀•°❀°•❀ ══  
+— More listed on [interests](https://grey-pt.straw.page/interests) page
+
+══════════════════════════════════════════ ❀•°❀°•❀ ══
 
 **I don't know how else to describe myself, so here are some characters I relate to a little bit too much :'D**  
 
