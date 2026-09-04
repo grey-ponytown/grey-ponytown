@@ -32,8 +32,3 @@
   <img src="https://github.com/user-attachments/assets/fc8c36f7-ab71-44a9-8534-be7cdbde82bd" width="13%" />
   <img src="https://github.com/user-attachments/assets/9b104b97-f536-460c-9567-03dfe5e7bacc" width="13%" />
   </p>
-
-
-
-
-
