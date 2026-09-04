@@ -5,9 +5,8 @@
 𝐀𝐠𝐞: 19 (unfriend / DNI if my age bothers you)  
 𝐁𝐚𝐬𝐞𝐝: UK/England  
 𝐈𝐍𝐓: **preferably 16+ please**, I don't want to interact with children  
-𝐃𝐍𝐈: basic DNI, ableism, **minors on 18+**  
-No roleplay please :'D (unless we're close)  
-
+𝐃𝐍𝐈: basic DNI, ableism, incest, (ect...), <ins>**minors on 18+**</ins>, No roleplay please :'D (unless we're close)  
+  
 [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
 ╚══ ❀•°❀°•❀ ══╝
@@ -16,7 +15,7 @@ No roleplay please :'D (unless we're close)
 
 ╔══ ❀•°❀°•❀ ══╗
 
-𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : arcane (jayvik), berserk, descendants of darkness, idolish7, lotr + silmarillion, po yun (BTtC), rick & morty, sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // more listed on [interests](https://grey-pt.straw.page/interests) page
+𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : <ins>arcane</ins> (jayvik), <ins>berserk</ins>, <ins>descendants of darkness</ins>, <ins>idolish7</ins>, lotr + silmarillion, po yun (BTtC), <ins>rick & morty</ins>, sk8 (matchablossom), spiritpact, SVSSS (moshang), uraboku // more listed on [interests](https://grey-pt.straw.page/interests) page
 
 ╚══ ❀•°❀°•❀ ══╝
 
