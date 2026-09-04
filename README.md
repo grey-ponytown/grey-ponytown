@@ -1,11 +1,11 @@
 ══ ❀•°❀°•❀ ══════════════════════════════════════════
 
-— 𝐍𝐚𝐦𝐞: Grey (or my cosplay's name)  
-— 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her (or my cosplay's pronouns)  
-— 𝐀𝐠𝐞: 19 (unfriend / DNI if my age bothers you)  
+— 𝐍𝐚𝐦𝐞: Grey $$\color{#8491AB}{(or\ my\ cosplay's\ name)}$$  
+— 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her $$\color{#8491AB}{(or\ my\ cosplay's\ pronouns)}$$  
+— 𝐀𝐠𝐞: 19 $$\color{#8491AB}{(unfriend\ /\ DNI\ if\ my\ age\ bothers\ you)}$$  
 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
 — 𝐈𝐍𝐓: **preferably 16+ please**, I don't want to interact with children  
-— 𝐃𝐍𝐈: basic DNI, ableism, incest, (ect...), <ins>**minors on 18+**</ins>, No roleplay please :'D (unless we're close)  
+— 𝐃𝐍𝐈: basic DNI, ableism, incest, (ect...), <ins>**minors on 18+**</ins>, $$\color{#8491AB}{no\ roleplay\ please\\ (unless\ we're\ close)}$$  
 — [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
