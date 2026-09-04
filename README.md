@@ -6,7 +6,7 @@
 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
 — 𝐈𝐍𝐓: **preferably 16+ please**, I don't want to interact with children  
 — 𝐃𝐍𝐈: <ins>**minors on 18+ server**</ins>, basic DNI (ableism, incest, ect...), $$\color{#8491AB}{DNI\ roleplay\ (unless\ we're\ close)}$$  
-— [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page) ଘ(*. .) ੈ✩‧₊
+— [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
@@ -18,7 +18,7 @@
 <ins>po yun (BTtC)</ins>, <ins>rick & morty</ins>, sk8 (matchablossom), spiritpact, SVSSS (<ins>moshang</ins>), uraboku
 
 — More listed on [interests](https://grey-pt.straw.page/interests) page  
-— Leave a [drawing](https://grey-pt.straw.page/drawing) on this page >:3
+— Leave a [drawing](https://grey-pt.straw.page/drawing) on this page ଘ(*. .) ੈ✩‧₊
 
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
