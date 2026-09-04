@@ -17,7 +17,8 @@
 𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ♡ : <ins>arcane</ins> (jayvik), <ins>berserk</ins>, <ins>descendants of darkness</ins>, <ins>idolish7</ins>, lotr + silmarillion,  
 <ins>po yun (BTtC)</ins>, <ins>rick & morty</ins>, sk8 (matchablossom), spiritpact, SVSSS (<ins>moshang</ins>), uraboku
 
-— More listed on [interests](https://grey-pt.straw.page/interests) page
+— More listed on [interests](https://grey-pt.straw.page/interests) page  
+— Leave a [drawing](https://grey-pt.straw.page/drawing) on this page >:3
 
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
