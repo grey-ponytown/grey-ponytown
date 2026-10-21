@@ -10,7 +10,7 @@
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
 🌨️₊˚.🎧 ˚.🩵*🎐✩｡︵ ⚪.⋆ ｡  
-I'm socially anxious and may be awkward with new interactions. It's nothing personal! Please int >:3  
+I can be anxious and quiet with new interactions. It's nothing personal! Please int >:3  
 
 ══ ❀•°❀°•❀ ══════════════════════════════════════════
 
