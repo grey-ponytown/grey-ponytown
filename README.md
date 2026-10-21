@@ -10,7 +10,7 @@
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
 
 🌨️₊˚.🎧 ˚.🩵*🎐✩｡︵ ⚪.⋆ ｡  
-I can be anxious and quiet with new interactions. It's nothing personal! Please int >:3  
+I can be anxious with new interactions. It's nothing personal! Please int >:3  
 
 ══ ❀•°❀°•❀ ══════════════════════════════════════════
 
