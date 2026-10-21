@@ -6,6 +6,7 @@
 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
 — 𝐈𝐍𝐓: **preferably 16+ please**, I don't want to interact with children  
 — 𝐃𝐍𝐈: <ins>**minors on 18+ server**</ins>, basic DNI, $$\color{#8491AB}{no\ roleplay\ (unless\ we're\ close)}$$  
+I may be quiet and awkward with new interactions. It's nothing personal! Please int >:3
 — [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
 ══════════════════════════════════════════ ❀•°❀°•❀ ══
