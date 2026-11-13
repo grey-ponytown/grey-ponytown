@@ -3,7 +3,7 @@
 — 𝐍𝐚𝐦𝐞: Grey $$\color{#8491AB}{(or\ my\ cosplay's\ name)}$$  
 — 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her $$\color{#8491AB}{(or\ my\ cosplay's\ pronouns)}$$  
 — 𝐀𝐠𝐞: 19 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
-— 𝐈𝐍𝐓: shared interests, **no req under 16+ please** $$\color{#8491AB}{(I\ don't\ want\ to\ int\ with\ children)}$$  
+— 𝐈𝐍𝐓: shared interests, **under 16 DNF**  
 — 𝐃𝐍𝐈: <ins>**minors on 18+ server**</ins>, basic DNI    
 — [𝐑𝐞𝐚𝐝 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://grey-pt.straw.page)
 
