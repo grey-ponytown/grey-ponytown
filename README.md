@@ -1,7 +1,7 @@
 ══ ❀•°❀°•❀ ══════════════════════════════════════════
 
-— 𝐍𝐚𝐦𝐞: Grey $$\color{#8491AB}{(or\ my\ cos\ name)}$$  
-— 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her $$\color{#8491AB}{(or\ my\ cos\ pronouns)}$$  
+— 𝐍𝐚𝐦𝐞: Grey $$\color{#8491AB}{(or\ cos\ name)}$$  
+— 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her $$\color{#8491AB}{(or\ cos\ pronouns)}$$  
 — 𝐀𝐠𝐞: 19 — 𝐁𝐚𝐬𝐞𝐝: UK/England  
 — 𝐈𝐍𝐓: shared interests, **under 16 DNF** $$\color{#8491AB}{+\ limited\ int\ }$$  
 — 𝐃𝐍𝐈: <ins>**minors on 18+ server**</ins>, basic DNI    
